@@ -1,1 +1,1 @@
-just passig by
+just passing by
